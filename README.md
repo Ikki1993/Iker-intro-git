@@ -1,2 +1,2 @@
-es un taller interesante
+es un taller muy interesante
 el profe es majo
