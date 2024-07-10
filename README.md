@@ -1,3 +1,2 @@
-es un taller aburrido
+es un taller muy interesante
 el profe es majo
-Hoy es miercoles
